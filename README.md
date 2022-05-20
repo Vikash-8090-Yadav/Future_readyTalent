@@ -34,4 +34,4 @@ One of the most popular college resturant in the capital, CU resturant enjoys a 
 
 <br>
 
-If u link this then plss show some ❤️ by giving ⭐ to this repo . 
+If u like this repo  then  show some ❤️ by giving ⭐ to this  . 
