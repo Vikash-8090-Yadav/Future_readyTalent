@@ -33,3 +33,5 @@ One of the most popular college resturant in the capital, CU resturant enjoys a 
 ![WhatsApp Image 2022-05-20 at 7 37 17 PM](https://user-images.githubusercontent.com/85225156/169545825-328569b4-ee53-4a5f-b21a-4aa92fece6f7.jpeg)
 
 <br>
+
+If u link this then plss show some ❤️ by giving ⭐ to this repo . 
