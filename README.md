@@ -34,4 +34,11 @@ One of the most popular college resturant in the capital, CU resturant enjoys a 
 
 <br>
 
+# U CAN CHECK THE VIDEO FOR THIS PROJECT BY CLICKING ON THE LINK BELOW
+<br>
+
+# [Project video](https://youtu.be/AnqDyx7UWPk)
+
+<br>
+
 If u like this repo  then  show some ❤️ by giving ⭐ to this  . 
