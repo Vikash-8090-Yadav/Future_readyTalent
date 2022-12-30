@@ -25,7 +25,7 @@ One of the most popular college resturant in the capital, CU resturant enjoys a 
 
 # Chef
 
-![WhatsApp Image 2022-05-20 at 7 35 16 PM](https://user-images.githubusercontent.com/85225156/169545214-6cd2a179-3d5e-434d-8d6c-37126b335900.jpeg)
+![professional-chefs-png](https://user-images.githubusercontent.com/56113566/210098732-ac47a71a-9afe-4753-ae76-1fb3372ed734.png)
 
 
 # Contact Page 
